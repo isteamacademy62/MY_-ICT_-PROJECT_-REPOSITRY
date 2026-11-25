@@ -1,1 +1,4 @@
 # MY_-ICT_-PROJECT_-REPOSITRY
+Kwadwo
+Oye 
+Leon
